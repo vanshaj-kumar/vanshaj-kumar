@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **vanshajpal1@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/u/2/my-drive](https://drive.google.com/drive/u/2/my-drive)
+- 📄 Know about my experiences.
 
 - ⚡ Fun fact **I think I have a sense of Humor too.**
 
